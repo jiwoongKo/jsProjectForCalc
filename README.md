@@ -9,5 +9,3 @@
 
 
 
-
-참고 : https://www.youtube.com/watch?v=rWFAR1mql8Q
